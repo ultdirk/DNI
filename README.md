@@ -6,4 +6,11 @@
 <p align="center"> Think you like my favs more than me </p>
 <p align="center"> Want to flirt with me </p>
 <p align="center"> Fetishize rape </p>
+<p align="center"> An IRL/DA of the current fronters source </p>
+<p align="center"> An IRL/DA who expect me to feed into your delusions </p>
+<p align="center"> Will make sexual comments towards me </p>
+<p align="center"> Are fatphobic </p>
+<p align="center"> Are a nazi </p>
+<p align="center"> Are against good faith labels (exceptions for current friends) </p>
+<p align="center"> Hate furries, therians, and/or otherkin/hearted </p>
 <p align="center"> Are just overall weird </p>
